@@ -23,4 +23,3 @@
 ---
 ### Written by: TariqJandaly
 #### Email : tariq.jandaly@gmail.com
-#### Number: [0539055652](https://t.me/TariqJandaly)
